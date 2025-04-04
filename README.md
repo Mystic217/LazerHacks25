@@ -1,2 +1,2 @@
-# LazerHacks25
+# LazerHacks25 404 Not Found
 LazerHacks
